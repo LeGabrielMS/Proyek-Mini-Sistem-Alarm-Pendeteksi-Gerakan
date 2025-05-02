@@ -8,6 +8,6 @@ Daftar Anggota:
 - Anggota 1: Dhafa Azmi Athallah (22552011110)
 - Anggota 2: Muhammad Nizar Nadhif Firdausyah (22552011098)
 
-Link YouTube: link placeholder
+Link YouTube: https://youtu.be/obu6t0R4wwQ?si=NR-sDQB4zROfbZ_o
 
 Link Wokwi: https://wokwi.com/projects/429750112473111553
